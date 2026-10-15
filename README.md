@@ -1,3 +1,3 @@
-### Hi there, I am Dat 👋
+### Hi there, I am Dat (@Ark) 👋
 - Founded https://karsami.com
 - Currently building https://eta.karsami.com
